@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TanyaRawatt
+- 👋 Hi, I’m @TanyaRawat
 - 👀 I’m a 2nd year student of bca
 - 📫 rwttanya2506@gmail.com
 
