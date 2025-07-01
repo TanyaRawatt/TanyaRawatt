@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TanyaRawat
-- 👀 I’m a 2nd year student of bca
+- 👀 I’m a 3rd year student of bca
 - 📫 rwttanya2506@gmail.com
 
 
